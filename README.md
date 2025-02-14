@@ -6,9 +6,10 @@ WANTED
 
 dead or alive
 
-hi guys i
+hi guys
 
-<img width="353" alt="image" src="https://github.com/user-attachments/assets/e792cefe-fe3c-41ce-80bd-23a9044c4c41" />
+![image](https://github.com/user-attachments/assets/68938906-34d5-481f-9237-22cc6f44c2fc)
+
 
 <!---
 Chichiwenk/Chichiwenk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
