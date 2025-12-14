@@ -16,9 +16,10 @@
  ‎ 
 
   
-‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎ ‎  ‎  ‎  ‎ @Starrylumi ‎ ‎  ‎ ‎  ‎  ‎   ‎  ‎  ‎  ‎ ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  @Conchiglioni
+‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎ ‎  ‎  ‎  ‎ @Starrylumi ‎ ‎  ‎ ‎  ‎  ‎   ‎  ‎  ‎  ‎ ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  @Conchiglioni
 
-![image](https://github.com/user-attachments/assets/39f7a025-f6e6-4962-b64c-4613afc165c3) ![image](https://github.com/user-attachments/assets/6bfcc346-2684-401a-9f21-d9198e813a04)
+![image](https://github.com/user-attachments/assets/703d2861-9a61-4806-94d0-fae2933649ad)
+ ![image](https://github.com/user-attachments/assets/6bfcc346-2684-401a-9f21-d9198e813a04)
 
 
 
